@@ -6,6 +6,8 @@ You can call me Plague or Atlas (or the name of whatever character I have as my 
 
 I'm a very big fan of unimportant side characters. 
 
+![](https://komarev.com/ghpvc/?username=PLAGUELAND&label=Spiders&style=flat-square&color=58192f)
+
 ---
 ## Information
 *Really just information on my pronouns and likes and such. I see no point in listing DNIs I just block freely*
