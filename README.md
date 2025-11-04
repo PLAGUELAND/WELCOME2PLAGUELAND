@@ -19,6 +19,9 @@ https://en.pronouns.page/@EX-OBLIVIONE
 * I've got really bad memory problems you may have to remind me who you are
 * Very autistic
 * I rarely interact first because I'm shy until spoken to. Please come up and chat with me I promise I'm very sweet !
+* Like please come talk to me I'm soooooo cool I promise ahaha
+* Especially come talk to me if we share any common interests
+* Slicks hair back flexes muscles
   
 ---
 ## Main Skins I Use 
