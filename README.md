@@ -2,7 +2,7 @@
 
 You can call me Plague or Atlas (or the name of whatever character I have as my skin!)
 
-18 | Any/All Pronouns | Biology/Taxidermy student, big anatomy nerd kindof a freak in general sorry 
+18 | Any/All Pronouns | Biology (anatomy, zoology) / taxidermy student, big horror nerd kindof a freak in general sorry 
 
 I'm a very big fan of unimportant side characters. 
 
